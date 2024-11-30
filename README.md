@@ -1,5 +1,6 @@
 WIPPPPPPPPPPP IGNORE ME LMAO
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=298C47&width=435&lines=I'LL+MAKE+THEM+NIGGAS+MAD%2C+YEAH;SOMEBODY+GOTTA+DO+IT)](https://git.io/typing-svg)
 <!--
 **voughtint/voughtint** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
