@@ -3,8 +3,8 @@
 
 
 
-<p align="center"> INCONSISTENT PONYTOWN STYLE !!!!!!!!!!
+<p align="center"> INCONSISTENT PONYTOWN SKIN STYLE !!!!!!!!!!
 
 <p align="center"> <kbd>TURN HIS TV OFF　⸝　TURN HIS TV OFF</kbd>
 
-<p align="center"> THE BOYS AND STAR WARS FANS INT PLSSSSSS
+<p align="center"> THE BOYS AND STAR WARS FANS INT PLSSSSSS I SWEAR I DONT BITE
