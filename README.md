@@ -3,7 +3,7 @@
 
 
 
-<p align="center"> i'll make this one day!
+<p align="center"> INCONSISTENT PONYTOWN STYLE !!!!!!!!!!
 
 <p align="center"> <kbd>TURN HIS TV OFF　⸝　TURN HIS TV OFF</kbd>
 
