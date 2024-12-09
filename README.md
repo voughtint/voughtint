@@ -1,6 +1,6 @@
 ![image](https://i.pinimg.com/736x/46/84/52/468452a512147f090404503300d2c96e.jpg)
 
-𒈔 　vyn　or　jinx　﹕　they/none　⋯　7teen　poc　⸺　usually offtab, whisper me if you need smth.
+𒈔 　vyn　or　jinx　﹕　they/none　⋯　7teen　(　dec　11　)　poc　⸺　usually offtab, whisper me if you need smth.
 c+h is more than welcome, int is cool as well but i'm not talkative ;-; sorry! i don't interact first either ;-;
 don't copy my skins and ***ask*** before you take inspo for anything of mine. like i said, i'm not that talkative
 at all, very low energy and i have severe trust issues, if i don't get a good read on you then i probably wont
