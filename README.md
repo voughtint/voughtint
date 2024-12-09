@@ -10,6 +10,6 @@ more later. idk.
 
 ***currently struggling with my mental health, won't be that energetic or anything really.***
 
-i like the boys, star wars, x-men, creepypasta, and the owl house. plus other stuff that i dont care to name.
-basic dni, i block and hide freely. discord is voughtinc if you ever need to reach out and im not on pt, i rarely
+i like the boys, star wars, x-men, creepypasta, the owl house, persona 5, lis, arcane, and rdr2. plus other stuff
+that i dont care to name. basic dni, i block and hide freely. discord is voughtinc if you ever need to reach out and im not on pt, i rarely
 use it so replies will be slow.
